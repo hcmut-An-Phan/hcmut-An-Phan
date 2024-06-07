@@ -2,7 +2,7 @@
 - 👀 I’m interested in FOOD
 - 🌱 I’m currently learning embedded system
 - 💞️ I’m looking to collaborate on coding
-- 📫 How to reach me an.phan19202@gmail.com
+- 📫 How to reach me an.phan19202@gmail.com, linkedin.com/in/an-phan-thanh-8133b8295
 - 😄 Pronouns: he he
 - ⚡ Fun fact: 1 minus = 60 seconds 
 
